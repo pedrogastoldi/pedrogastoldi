@@ -8,6 +8,7 @@
 - 📫 Você me acha através do e-mail **pedrogastoudi@gmail.com**
 
 - 📄 Fui fundado por Pedro Gastoldi e aqui estão minhas habilidades [https://www.linkedin.com/in/pedro-gastoldi-de-matos-b2ab85181/](https://www.linkedin.com/in/pedro-gastoldi-de-matos-b2ab85181/)
+- 📄 Um dos meus projetos https://www.behance.net/gallery/143154845/Analise-do-preco-dos-alimentos-(RJ)/modules/808816277
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
